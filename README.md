@@ -1,5 +1,3 @@
-- 🌏  interested in software development
-- 🌱  Can prepare burger with Python,C,JS and some DevOps staffs
 - 💞️  I’m looking to collaborate on exciting projects to gain more experience
 - 📫  Reach me at ashyrbaew@gmail.com
 
