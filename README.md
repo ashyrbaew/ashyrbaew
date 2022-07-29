@@ -1,4 +1,4 @@
-- 💞️  I’m looking to collaborate on exciting projects to gain more experience
+- 💞️  I’m looking to collaborate on exciting projects
 - 📫  Reach me at ashyrbaew@gmail.com
 
 <!---
